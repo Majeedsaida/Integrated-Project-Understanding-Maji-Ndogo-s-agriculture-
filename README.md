@@ -1,1 +1,1 @@
-# Integrated-Project-Understanding-Maji-Ndogo-s-agriculture-
+Integrated project: Understanding and trusting data 
